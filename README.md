@@ -1,0 +1,1 @@
+# 4-195-special-problems-in-architectural-design-spring-2005_ad92b438f8ea43fcb7e22025354a3abc
